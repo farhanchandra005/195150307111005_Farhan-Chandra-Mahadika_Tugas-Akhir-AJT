@@ -1,1 +1,0 @@
-# 195150307111005_Farhan-Chandra-Mahadika_Tugas-Akhir-AJT
